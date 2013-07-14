@@ -124,6 +124,12 @@ Michigan
 =======
 
 * Detroit
+* Traverse City
+* Fish Town
+* Leelanau Peninsula - Sleeping Bear Dunes
+* Pictured Rocks
+* Mackinac Island
+* Windsor (bring a passport, it's right across the river from Detroit)
 
 Minnesota
 =========
@@ -247,6 +253,7 @@ Texas
 =====
 
 * Austin
+* Hamilton Pool
 * SXSW
 
 Utah
