@@ -253,6 +253,7 @@ Utah
 ====
 
 * Mount Zion
+* Moab (Arches National Park)
 
 Vermont
 ======
